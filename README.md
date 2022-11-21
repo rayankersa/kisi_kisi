@@ -1,1 +1,1 @@
-# project1buansus
+# kisi kisi bu ansus ye kan
